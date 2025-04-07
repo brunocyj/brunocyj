@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @brunocyj
-- 👀 I’m interested in one day woking up as a billionaire heir
+- 👀 I’m interested in one day waking up as a billionaire heir
 - 🌱 I’m currently learning shit
 - 💞️ I’m looking to find a sugar mommy
-- 📫 How to reach me (don't reach me"
+- 📫 How to reach me (don't)"
 - 😄 Pronouns: ????
 - ⚡ Fun fact: i'm dumb as fuck
 
